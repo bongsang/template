@@ -4,11 +4,6 @@
 https://www.linkedin.com/in/bongsang
 </p>
 
-# Objective : 
-
-## Algorithms : 
-
-
 
 
 
